@@ -1,11 +1,1 @@
-
-# JMTHON
-[![Hits](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2FMr-confused%2Fcatpack&count_bg=%2379C83D&title_bg=%23555555&icon=&icon_color=%23E7E7E7&title=hits&edge_flat=false)](https://github.com/JMTHON/RRRD7)
-
-
-
-## Deploy
-[![Deploy To Heroku](https://www.herokucdn.com/deploy/button.svg)](https://heroku.com/deploy?template=https://github.com/jasem-iq/jm-pack)
-
-## 
- 
+يكلك بسنة -296 قبل الميلاد جانت اكو بقره اسمها هيداغاتور اجه انسان يريد يحلبها حلبها وبعدين اخذته اللذه لبعيد ف نكحها يكلك ورا كم سنة الزلمه صار حامل وجاب ولد اسمه نصرخوت  ويكلك هذ نصرخوت شافله كاع وحكمهه وسماها بلاد الرافدين لان جانت بلد زغير وبس نهرين ف سماها هيج ويكلك هذ الشخص كان اكدي ومن هنا طلعنا احنا لعراقيين 
